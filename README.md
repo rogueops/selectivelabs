@@ -1,6 +1,6 @@
 # Selective Labs 🎭
+Comedy | Funny Videos | Crowd Work | Stand-Up<br>
 Selective Labs Comedy – Funny YouTube Shorts, stand-up highlights, and crowd work edits featuring Matt Rife, Tom Segura & trending viral comedy.<br>
-Comedy | Funny Videos | Crowd Work | Stand-Up
 
 😂 About Us<br>
 Selective Labs is a YouTube comedy channel delivering the funniest stand-up comedy highlights, crowd work clips, and viral shorts.<br>
