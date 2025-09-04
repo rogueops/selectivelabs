@@ -5,7 +5,7 @@ Comedy | Funny Videos | Crowd Work | Stand-Up
 Selective Labs is your go-to spot for the funniest comedy clips, crowd work highlights, and viral stand-up moments. From legendary comedians like Matt Rife and Tom Segura to our own custom edits, we bring nonstop laughs, trending topics, and unforgettable punchlines. Our mission is simple: make your day better, one laugh at a time.
 
 📫 Contact
-🌐 LinkTree: https://LinkTr.ee/SelectiveLabs
+<br>🌐 LinkTree: https://LinkTr.ee/SelectiveLabs
 📺 YouTube: https://YouTube.com/@SelectiveLabs
 🛍️ Merch: https://selectivecomedy.com
 
